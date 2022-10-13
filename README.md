@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding and hacking .
 - 🌱 I’m currently learning C language and SQL .
 - 💞️ I’m looking to collaborate on to learn C and coding and hacking .
-- 📫 How to reach me - hetsoni142@gmail.com
+- 📫 How to reach me - rolex2sir7@gmail.com
